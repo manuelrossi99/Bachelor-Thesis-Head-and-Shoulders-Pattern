@@ -1,0 +1,1 @@
+# Bachelor-Thesis-Head-and-Shoulders-Pattern
